@@ -7,3 +7,4 @@ crypto 5yrears
 2026 is best
 HYPE second airdrop?
 LFG?
+I am early
